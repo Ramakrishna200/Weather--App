@@ -1,1 +1,0 @@
-c:\Users\reddy\OneDrive\Documents\Downloads\wind.png
